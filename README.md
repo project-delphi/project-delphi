@@ -12,4 +12,4 @@ I was born and raised in Great Britain, primarily London. Since then I've lived 
 
 🌱 I’m currently learning everything 🤣
 
-🤓 Lifelong learner, digital nomad - implied minimalist
+🤓 Lifelong learner, digital nomad; implied minimalist

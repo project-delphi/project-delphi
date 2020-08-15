@@ -1,7 +1,7 @@
 ### Hello 👋 - I'm Ravi
 
 
-I was born and raised in󠁧󠁢󠁥󠁮󠁧󠁿󠁮󠁧󠁿 the European Union 🇪🇺; primarily London. 
+I was born and grew up in󠁧󠁢󠁥󠁮󠁧󠁿󠁮󠁧󠁿 the European Union 🇪🇺; primarily London. 
 
 Since then I've lived all over our 🌎 blue planet, currently my coordinates fall in 🇨🇦.
 

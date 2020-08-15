@@ -5,7 +5,7 @@ I was born and raised in󠁧󠁢󠁥󠁮󠁧󠁿󠁮󠁧󠁿 the European Union 
 
 Since then I've lived all over our 🌎 blue planet, currently my coordinates fall in 🇨🇦.
 
-### Trivia About Me
+### Me in Emoji Point Form
 
 🛄 Suitcase digital nomad - [Erdos](https://en.wikipedia.org/wiki/Paul_Erd%C5%91s) style
 
@@ -17,7 +17,6 @@ Since then I've lived all over our 🌎 blue planet, currently my coordinates fa
 
 🏙️ Entrepreneur by accident
 
-
-📚 I’m currently learning everything 🤣
+📚 I’m currently learning everything ...
 
 

@@ -19,6 +19,6 @@ Since then I've lived all over our 🌎 blue planet, currently my coordinates fa
 🏙️ Entrepreneur by accident
 
 
-🌱 I’m currently learning everything 🤣
+📚 I’m currently learning everything 🤣
 
 

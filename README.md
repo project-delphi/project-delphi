@@ -11,13 +11,13 @@ Since then I've lived all over our 🌎 blue planet, currently my coordinates fa
 
 🇲🇽 Fluent in LatAm Spanish
 
-🎓 Received doctoral supervision from Prof [Brian D. Ripley](https://en.wikipedia.org/wiki/Brian_D._Ripley) 
- 
+🕉️ Yoga student for life
+
 🥼 Applied research scientist by training
 
-👻 Spiritually Bayesian
+🎓 Received doctoral supervision from Prof [Brian D. Ripley](https://en.wikipedia.org/wiki/Brian_D._Ripley) 
 
-🕉️ Yoga student for life
+👻 Spiritually Bayesian
 
 💻 Developer by experience
 

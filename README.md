@@ -2,7 +2,7 @@
 
 I'm Ravi - going by the handle `@project-delphi` on various VCSs. 
 
-I was born and raised in󠁧󠁢󠁥󠁮󠁧󠁿󠁮󠁧󠁿 the 🇪🇺, primarily London. Since then I've lived all over our 🌎 blue planet, currently living in 🇨🇦.
+I was born and raised in󠁧󠁢󠁥󠁮󠁧󠁿󠁮󠁧󠁿 the 🇪🇺, primarily London. Since then I've lived all over our 🌎 blue planet, currently my coordinates fall in 🇨🇦.
 
 ### About Me
 

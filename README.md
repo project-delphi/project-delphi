@@ -1,8 +1,8 @@
 ### Hi there 👋
 
-I'm Ravi - going by the moniker `project-delphi` on the interweb. 
+I'm Ravi - going by the handle `@project-delphi` on various VCSs. 
 
-I was born and raised in󠁧󠁢󠁥󠁮󠁧󠁿󠁮󠁧󠁿 the EU, primarily London. Since then I've lived all over our 🌎 blue planet.
+I was born and raised in󠁧󠁢󠁥󠁮󠁧󠁿󠁮󠁧󠁿 the 🇪🇺, primarily London. Since then I've lived all over our 🌎 blue planet, currently living in 🇨🇦.
 
 ### About Me
 

@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hello 👋
 
 I'm Ravi - going by the handle `@project-delphi` on various VCSs. 
 

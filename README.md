@@ -2,7 +2,7 @@
 
 I'm Ravi - going by the moniker `project-delphi` on the interweb. 
 
-I was born and raised in󠁧󠁢󠁥󠁮󠁧󠁿󠁮󠁧󠁿 England (when it was in the EU 🇪🇺) , primarily London. Since then I've lived all over our 🌎 blue planet.
+I was born and raised in󠁧󠁢󠁥󠁮󠁧󠁿󠁮󠁧󠁿 the EU, primarily London. Since then I've lived all over our 🌎 blue planet.
 
 ### About Me
 

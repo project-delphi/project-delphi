@@ -17,6 +17,8 @@ Since then I've lived all over our 🌎 blue planet, currently my coordinates fa
 
 👻 Spiritually Bayesian
 
+🕉️ Junior yogi student for life
+
 💻 Developer by experience
 
 🏙️ Entrepreneur by accident

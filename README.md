@@ -1,6 +1,5 @@
-### Hello 👋
+### Hello 👋 - I'm Ravi
 
-I'm Ravi - going by the handle `@project-delphi` on various VCSs. 
 
 I was born and raised in󠁧󠁢󠁥󠁮󠁧󠁿󠁮󠁧󠁿 the 🇪🇺; primarily London. 
 

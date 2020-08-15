@@ -15,6 +15,8 @@ Since then I've lived all over our 🌎 blue planet, currently my coordinates fa
  
 🥼 Applied research scientist by training
 
+🕉️ Spiritually Bayesian
+
 💻 Developer by experience
 
 🏙️ Entrepreneur by accident

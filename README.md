@@ -7,12 +7,6 @@ Since then I've lived all over our 🌎 blue planet, currently my coordinates fa
 
 ### Emoji Trivia
 
-🛄 Suitcase digital nomad - [Erdos](https://en.wikipedia.org/wiki/Paul_Erd%C5%91s) style
-
-🇲🇽 Fluent in LatAm Spanish
-
-🕉️ Yoga student for life
-
 🥼 Applied research scientist by training
 
 🎓 Received doctoral supervision from Prof [Brian D. Ripley](https://en.wikipedia.org/wiki/Brian_D._Ripley) 
@@ -22,6 +16,12 @@ Since then I've lived all over our 🌎 blue planet, currently my coordinates fa
 💻 Developer by experience
 
 🕴️ Entrepreneur by accident
+
+🛄 Suitcase digital nomad - [Erdos](https://en.wikipedia.org/wiki/Paul_Erd%C5%91s) style
+
+🇲🇽 Fluent in LatAm Spanish
+
+🕉️ Yoga student for life
 
 📚 I’m currently learning everything ...
 

@@ -9,7 +9,7 @@ Since then I've sojourned all over our 🌎 blue planet, currently my coordinate
 
 🥼 Applied research scientist by training
 
-🎓 Received doctoral supervision from Prof [Brian D. Ripley](http://www.stats.ox.ac.uk/~ripley/) - who has many impressive [accomplishments](https://en.wikipedia.org/wiki/Brian_D._Ripley)
+🎓 Received doctoral supervision from Prof [Brian D. Ripley](http://www.stats.ox.ac.uk/~ripley/) - who has many notable [accomplishments](https://en.wikipedia.org/wiki/Brian_D._Ripley)
 
 👻 Spiritually Bayesian
 

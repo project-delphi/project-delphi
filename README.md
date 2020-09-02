@@ -17,7 +17,7 @@ Since then I've sojourned all over our 🌎 blue planet, currently my coordinate
 
 🕴️ Entrepreneur by accident
 
-🛄 Suitcase digital nomad - [Erdos](https://en.wikipedia.org/wiki/Paul_Erd%C5%91s) style
+🛄 Suitcase digital nomad - [Erdos](https://en.wikipedia.org/wiki/Paul_Erd%C5%91s) style (My Erdos number is ♾️  😢)
 
 🇲🇽 Fluent in LatAm Spanish
 

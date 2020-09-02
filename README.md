@@ -15,9 +15,9 @@ Since then I've sojourned all over our 🌎 blue planet, currently my coordinate
 
 🖥️ Computationally Intensive
 
-😢 My Erdos number is ♾️
+😢 My [Erdos number](https://en.wikipedia.org/wiki/Erd%C5%91s_number) is ♾️
 
-🛄 Suitcase digital nomad - [Erdos](https://en.wikipedia.org/wiki/Paul_Erd%C5%91s) style
+🛄 Suitcase minimalist digital nomad
 
 💻 Developer by experience
 

@@ -13,11 +13,15 @@ Since then I've sojourned all over our 🌎 blue planet, currently my coordinate
 
 👻 Spiritually Bayesian
 
+🖥️ Computationally Intensive
+
+😢 My Erdos number is ♾️
+
+🛄 Suitcase digital nomad - [Erdos](https://en.wikipedia.org/wiki/Paul_Erd%C5%91s) style
+
 💻 Developer by experience
 
 🕴️ Entrepreneur by accident
-
-🛄 Suitcase digital nomad - [Erdos](https://en.wikipedia.org/wiki/Paul_Erd%C5%91s) style - My Erdos number is ♾️ 😢
 
 🇲🇽 Fluent in LatAm Spanish
 

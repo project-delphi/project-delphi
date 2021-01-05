@@ -27,6 +27,8 @@ Since then I've sojourned all over our 🌎  blue planet, currently my coordinat
 
 🕉️ Yoga student for life
 
+🧠 + 🤖 fascinates me
+
 📚 I’m currently learning everything ...
 
 

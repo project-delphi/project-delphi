@@ -3,7 +3,7 @@
 
 I was born and grew up in󠁧󠁢󠁥󠁮󠁧󠁿󠁮󠁧󠁿 the European Union 🇪🇺 ; primarily London 🇬🇧
 
-Since then I've sojourned all over our 🌎  blue planet, currently my coordinates fall in 🇨🇦
+Since then I've sojourned all over our 🌎  blue planet
 
 ### Emoji Trivia
 

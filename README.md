@@ -29,6 +29,6 @@ Since then I've sojourned all over our 🌎  blue planet
 
 🧠 + 🤖 fascinates me
 
-📚 I’m currently learning everything ...
+📚 I’m currently learning biology and genomics
 
 

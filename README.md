@@ -32,3 +32,8 @@ Since then I've sojourned all over our 🌎  blue planet
 📚 I’m currently learning biology and genomics
 
 
+<h2 align="center"></h2>
+<p align="center">
+<img src="https://github-readme-stats.vercel.app/api/top-langs/?username=project-delphi&layout=compact&theme=algolia" width="500px">
+</p>
+

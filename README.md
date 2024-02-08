@@ -29,8 +29,7 @@ Since then I've sojourned all over our 🌎 blue planet
 
 🧠 + 🤖 fascinates me
 
-📚 I’m currently learning about graph neural networks and open source contributions
-
+📚 I’m currently learning graph neural networks and open source development
 
 <h2 align="center"></h2>
 <p align="center">

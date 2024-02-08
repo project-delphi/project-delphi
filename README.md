@@ -29,7 +29,7 @@ Since then I've sojourned all over our 🌎 blue planet
 
 🧠 + 🤖 fascinates me
 
-📚 I’m currently learning computational biology and ci/cd (continuous integration & continuous deployment)
+📚 I’m currently learning graph neural networks and computational biology
 
 
 <h2 align="center"></h2>

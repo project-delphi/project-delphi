@@ -31,4 +31,4 @@ Since then I've sojourned all over our 🌎 blue planet
 
 🧠 + 🤖 fascinates me
 
-📚 I’m currently learning graph neural networks (of which LLMs/Transformers are a special case) and open source development
+📚 I’m currently learning graph neural networks (of which llms & transformers are a special case), topological deep learning and open source development

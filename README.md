@@ -9,6 +9,8 @@ Since then I've sojourned all over our 🌎 blue planet
 
 👍 Check out my [LinkedIn](https://www.linkedin.com/in/ravi-kalia-phd/)
 
+📝 Check out my [Blog](https://project-delphi.github.io/ml-blog/)
+
 👨‍🔬 Applied research scientist by training
 
 🎓 Received doctoral supervision from Prof [Brian D. Ripley](http://www.stats.ox.ac.uk/~ripley/) - he of several notable [achievements](https://en.wikipedia.org/wiki/Brian_D._Ripley)
